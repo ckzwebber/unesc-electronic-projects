@@ -16,4 +16,4 @@ Lhes deixo aqui alguns links úteis acerca do Proteus:
 
 ## Contato
 
-Fique a vontade para entrar em contato comigo pelo meu <a href="https://steamcommunity.com/id/ckzwebber" target="_blank">LinkedIn</a>, até mais! 👋
+Fique a vontade para entrar em contato comigo pelo meu <a href="https://www.linkedin.com/in/cmiguelwm/" target="_blank">LinkedIn</a>, até mais! 👋
